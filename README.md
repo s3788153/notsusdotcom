@@ -1,1 +1,1 @@
-t.ly/zzBY
+https://shorturl.ac/battlefield6
